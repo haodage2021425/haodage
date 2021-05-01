@@ -3,9 +3,9 @@
 
 好大哥永久久域名HttpS://dgdgdg.net
 
-⭐️ 👉地址一：HttpS : //dgdg27.com
+⭐️ 👉地址一：https://dgdg27.com
 
-⭐️ 👉备用地址：HttpS : //dgdg33.com
+⭐️ 👉备用地址：https://dgdg33.com
 
 ！️！️长按复制到浏览器里面访问以上网址！️！️
 
